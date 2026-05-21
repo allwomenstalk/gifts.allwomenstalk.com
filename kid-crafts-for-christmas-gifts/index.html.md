@@ -66,16 +66,16 @@ Source: [buzzfeed.com](http://www.buzzfeed.com/jreeve/diy-ornaments-you-can-make
 
 ## Related Posts
 
+- [7 Adorable Etsy Finds ...](https://allwomenstalk.com/7-adorable-etsy-finds/)
+- [5 Great DIY Projects to Bring Spring to Your Home ...](https://allwomenstalk.com/5-great-diy-projects-to-bring-spring-to-your-home/)
+- [DIY Invitations...](https://allwomenstalk.com/diy-invitations/)
+- [8 Great Play-Date Crafts ...](https://allwomenstalk.com/8-great-play-date-crafts/)
+- [8 Great Toys for Your Cat You Can Make ...](https://allwomenstalk.com/8-great-toys-for-your-cat-you-can-make/)
+- [Frugal Scrapbooking](https://allwomenstalk.com/frugal-scrapbooking-the-mad-cropper/)
+- [Top 10 Crafts for Your Child ...](https://allwomenstalk.com/top-10-crafts-for-your-child/)
+- [Putting It Together - Florals for Amy ...](https://allwomenstalk.com/putting-it-together-florals-for-amy/)
 - [DIY Weekend- Mike amp Chris Hoodie ...](https://allwomenstalk.com/diy-weekend-mike-chris-hoodie/)
 - [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)
-- [5 Great DIY Projects to Bring Spring to Your Home ...](https://allwomenstalk.com/5-great-diy-projects-to-bring-spring-to-your-home/)
-- [7 Adorable Etsy Finds ...](https://allwomenstalk.com/7-adorable-etsy-finds/)
-- [8 Great Play-Date Crafts ...](https://allwomenstalk.com/8-great-play-date-crafts/)
-- [Frugal Scrapbooking](https://allwomenstalk.com/frugal-scrapbooking-the-mad-cropper/)
-- [Putting It Together - Florals for Amy ...](https://allwomenstalk.com/putting-it-together-florals-for-amy/)
-- [8 Great Toys for Your Cat You Can Make ...](https://allwomenstalk.com/8-great-toys-for-your-cat-you-can-make/)
-- [DIY Invitations...](https://allwomenstalk.com/diy-invitations/)
-- [Top 10 Crafts for Your Child ...](https://allwomenstalk.com/top-10-crafts-for-your-child/)
 - [8 Free Craft Items for Kids ...](https://parenting.allwomenstalk.com/8-free-craft-items-for-kids/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 
