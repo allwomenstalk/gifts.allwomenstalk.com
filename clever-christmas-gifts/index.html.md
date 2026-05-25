@@ -138,16 +138,16 @@ Source: [etsy.com](http://www.etsy.com/listing/111917132/handpainted-glass-chris
 
 ## Related Posts
 
-- [Exceptional Gymnastics Christmas Gifts ...](https://gifts.allwomenstalk.com/gymnastics-christmas-gifts/)
-- [Country Themed Christmas Gifts for Boyfriend ...](https://gifts.allwomenstalk.com/christmas-gifts-for-country-boyfriend/)
-- [Homemade Christmas Gifts for Kiddos ...](https://gifts.allwomenstalk.com/homemade-christmas-gifts-for-kids/)
-- [Christmas Gift Ideas for Veterinarians ...](https://gifts.allwomenstalk.com/christmas-gifts-for-veterinarians/)
-- [Best Christmas Gifts For College Students ...](https://gifts.allwomenstalk.com/best-christmas-gifts-for-college-students/)
 - [Fiery Christmas Gifts for Firefighters ...](https://gifts.allwomenstalk.com/firefighter-christmas-gifts/)
+- [25 days of christmas gift ideas](https://gifts.allwomenstalk.com/25-days-of-christmas-gifts/)
+- [Best Christmas Gifts For College Students ...](https://gifts.allwomenstalk.com/best-christmas-gifts-for-college-students/)
+- [Christmas Gift Ideas for Veterinarians ...](https://gifts.allwomenstalk.com/christmas-gifts-for-veterinarians/)
 - [Top Christmas Gifts for Guy Friends ...](https://gifts.allwomenstalk.com/christmas-gifts-for-guy-friends/)
 - [Exciting Christmas Gifts for the Softball Enthusia...](https://gifts.allwomenstalk.com/softball-christmas-gifts/)
+- [Country Themed Christmas Gifts for Boyfriend ...](https://gifts.allwomenstalk.com/christmas-gifts-for-country-boyfriend/)
+- [Homemade Christmas Gifts for Kiddos ...](https://gifts.allwomenstalk.com/homemade-christmas-gifts-for-kids/)
 - [Cute Christmas Gifts for Your Boyfriend ...](https://gifts.allwomenstalk.com/cute-christmas-gifts-for-your-boyfriend/)
-- [25 days of christmas gift ideas](https://gifts.allwomenstalk.com/25-days-of-christmas-gifts/)
+- [Exceptional Gymnastics Christmas Gifts ...](https://gifts.allwomenstalk.com/gymnastics-christmas-gifts/)
 - [Awesome Christmas Gift Ideas for Your Best Friend ...](https://lifestyle.allwomenstalk.com/awesome-gift-ideas-for-your-best-friend/)
 - [8 Amazingly Creative Family Gift Ideas ...](https://lifestyle.allwomenstalk.com/amazingly-creative-family-gift-ideas/)
 
