@@ -264,16 +264,16 @@ Written in collaboration with editor, Eliza Martinez
 
 ## Related Posts
 
-- [holiday gifts on a budget](https://lifestyle.allwomenstalk.com/wonderful-holiday-gift-ideas-on-a-budget/)
-- [9 Great Gifts for Foodies ...](https://food.allwomenstalk.com/great-gifts-for-foodies/)
 - [back to school gift ideas for teachers](https://parenting.allwomenstalk.com/back-to-school-gift-ideas-for-teachers/)
 - [great christmas gifts for husband](https://love.allwomenstalk.com/great-christmas-gifts-for-your-husband-that-hes-sure-to-love/)
-- [7 Wonderful Ways to Thank a Veteran ...](https://inspiration.allwomenstalk.com/wonderful-ways-to-thank-a-veteran/)
-- [christmastime](https://lifestyle.allwomenstalk.com/best-things-about-christmastime-that-i-really-look-forward-to/)
-- [7 Gift Ideas for Toddlers and Preschoolers ...](https://parenting.allwomenstalk.com/gift-ideas-for-toddlers-and-preschoolers/)
-- [7 Ways to Show Thanks This Holiday Season ...](https://inspiration.allwomenstalk.com/ways-to-show-thanks-this-holiday-season/)
-- [9 Incredible and Unique Holiday Gift Ideas ...](https://gifts.allwomenstalk.com/incredible-and-unique-holiday-gift-ideas/)
+- [9 Great Gifts for Foodies ...](https://food.allwomenstalk.com/great-gifts-for-foodies/)
 - [9 Gift Ideas for Your Husband for Any Occasion ...](https://love.allwomenstalk.com/gift-ideas-for-your-husband-for-any-occasion/)
+- [christmastime](https://lifestyle.allwomenstalk.com/best-things-about-christmastime-that-i-really-look-forward-to/)
+- [9 Incredible and Unique Holiday Gift Ideas ...](https://gifts.allwomenstalk.com/incredible-and-unique-holiday-gift-ideas/)
+- [holiday gifts on a budget](https://lifestyle.allwomenstalk.com/wonderful-holiday-gift-ideas-on-a-budget/)
+- [7 Ways to Show Thanks This Holiday Season ...](https://inspiration.allwomenstalk.com/ways-to-show-thanks-this-holiday-season/)
+- [7 Gift Ideas for Toddlers and Preschoolers ...](https://parenting.allwomenstalk.com/gift-ideas-for-toddlers-and-preschoolers/)
+- [7 Wonderful Ways to Thank a Veteran ...](https://inspiration.allwomenstalk.com/wonderful-ways-to-thank-a-veteran/)
 - [15 Homemade Gift Ideas Theyll Love ...](https://lifestyle.allwomenstalk.com/homemade-gift-ideas-theyll-love/)
 - [8 Unbelievably Delectable Homemade Christmas Gift ...](https://lifestyle.allwomenstalk.com/unbelievably-delectable-homemade-christmas-gift-ideas/)
 
