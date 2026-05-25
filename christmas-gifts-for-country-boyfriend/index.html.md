@@ -72,15 +72,15 @@ Source: [buzzfeed.com](http://www.buzzfeed.com/emofly/romantic-ways-to-say-i-lov
 
 ## Related Posts
 
-- [Cricut Crafted Christmas Gifts for Teachers ...](https://gifts.allwomenstalk.com/cricut-teacher-christmas-gifts/)
-- [DIY Christmas Gifts For Teens ...](https://gifts.allwomenstalk.com/diy-christmas-gifts-for-teens/)
-- [Inspiring Gifts For Missionaries During Christmas ...](https://gifts.allwomenstalk.com/missionary-christmas-gifts/)
-- [Charming Christmas Gifts for Cherished Relationshi...](https://gifts.allwomenstalk.com/relationship-christmas-gifts/)
-- [19 The Ultimate Manly Christmas Gift Guide: Artist...](https://gifts.allwomenstalk.com/art-of-manliness-christmas-gifts/)
 - [DIY Christmas Gifts for Girlfriend ...](https://gifts.allwomenstalk.com/diy-christmas-gifts-for-girlfriend/)
-- [Fun and Creative Christmas Cheer Gifts Ideas ...](https://gifts.allwomenstalk.com/cheer-christmas-gifts/)
+- [19 The Ultimate Manly Christmas Gift Guide: Artist...](https://gifts.allwomenstalk.com/art-of-manliness-christmas-gifts/)
 - [Amazing DIY Christmas Gift Ideas for Teammates ...](https://allwomenstalk.com/christmas-gifts-for-teammates/)
+- [Inspiring Gifts For Missionaries During Christmas ...](https://gifts.allwomenstalk.com/missionary-christmas-gifts/)
 - [homemade xmas gifts for coworkers](https://allwomenstalk.com/homemade-christmas-gifts-for-coworkers/)
+- [Charming Christmas Gifts for Cherished Relationshi...](https://gifts.allwomenstalk.com/relationship-christmas-gifts/)
+- [DIY Christmas Gifts For Teens ...](https://gifts.allwomenstalk.com/diy-christmas-gifts-for-teens/)
+- [Cricut Crafted Christmas Gifts for Teachers ...](https://gifts.allwomenstalk.com/cricut-teacher-christmas-gifts/)
+- [Fun and Creative Christmas Cheer Gifts Ideas ...](https://gifts.allwomenstalk.com/cheer-christmas-gifts/)
 - [Exciting 3D Printed Christmas Gifts ...](https://gifts.allwomenstalk.com/3d-printed-christmas-gifts/)
 - [7 Unique Gift Ideas for Your Boyfriend ...](https://love.allwomenstalk.com/unique-gift-ideas-for-your-boyfriend/)
 - [6 Unique Gift Ideas for Your Partner ...](https://love.allwomenstalk.com/unique-gift-ideas-for-your-partner/)

@@ -80,15 +80,15 @@ This article was written in collaboration with editor Lisa Washington.
 
 ## Related Posts
 
-- [floral designer perfumes](https://perfumes.allwomenstalk.com/deliciously-warm-floral-perfumes-that-are-just-perfect-for-winter/)
-- [top ladies perfume](https://perfumes.allwomenstalk.com/all-time-best-womens-perfumes/)
-- [amarige givenchy notes](https://perfumes.allwomenstalk.com/the-8-perfume-families/)
 - [8 Fresh Summer Fragrances ...](https://perfumes.allwomenstalk.com/8-fresh-summer-fragrances/)
 - [7 Ways to the Best Perfume for You ...](https://perfumes.allwomenstalk.com/ways-to-the-best-perfume-for-you/)
 - [keira knightley miss dior](https://perfumes.allwomenstalk.com/popular-fragrances-for-your-dressing-table/)
+- [8 Brand New Perfumes ...](https://perfumes.allwomenstalk.com/brand-new-perfumes/)
+- [amarige givenchy notes](https://perfumes.allwomenstalk.com/the-8-perfume-families/)
 - [perfume applying tips](https://perfumes.allwomenstalk.com/tips-on-how-to-wear-perfume/)
 - [color le smoky hollywood icon](https://perfumes.allwomenstalk.com/soft-summery-scents-for-evening/)
-- [8 Brand New Perfumes ...](https://perfumes.allwomenstalk.com/brand-new-perfumes/)
+- [top ladies perfume](https://perfumes.allwomenstalk.com/all-time-best-womens-perfumes/)
+- [floral designer perfumes](https://perfumes.allwomenstalk.com/deliciously-warm-floral-perfumes-that-are-just-perfect-for-winter/)
 - [parfum dolce  gabbana la roue de la fortune sephor...](https://perfumes.allwomenstalk.com/luscious-perfumes-from-dg/)
 - [10 Most Charmingly Memorable Scents for Men This C...](https://perfumes.allwomenstalk.com/most-charmingly-memorable-scents-for-men-this-christmas/)
 - [Fathers Day Gift Ideas for the Romantic Dad ...](https://allwomenstalk.com/fathers-day-gift-ideas-for-the-romantic-dad/)

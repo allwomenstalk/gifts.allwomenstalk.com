@@ -69,15 +69,15 @@ Top Photo Credit: [Brandon Christopher Warren](https://www.flickr.com/photos/bra
 ## Related Posts
 
 - [holiday throws and pillows](https://allwomenstalk.com/8-pretty-holiday-throw-pillows/)
+- [diy christmas gift ideas](https://allwomenstalk.com/7-diy-christmas-gift-ideas/)
 - [toys made in 2010](https://allwomenstalk.com/hot-holiday-toys-for-girls-for/)
 - [christmas gift tips](https://allwomenstalk.com/8-tips-on-finding-the-perfect-christmas-gift/)
-- [christmas presents ideas for teenage guys](https://allwomenstalk.com/8-best-gift-ideas-for-teenage-boys/)
 - [couple stocking stuffers](https://allwomenstalk.com/7-cool-stocking-stuffers-for-couples/)
-- [diy christmas gift ideas](https://allwomenstalk.com/7-diy-christmas-gift-ideas/)
 - [pretty christmas stockings](https://allwomenstalk.com/7-pretty-christmas-stockings/)
-- [hallmark pickle ornament](https://allwomenstalk.com/great-hallmark-keepsake-ornaments-for/)
 - [famous christmas icons](https://allwomenstalk.com/7-cool-christmas-icons/)
 - [christmas tree gold theme](https://allwomenstalk.com/7-beautiful-christmas-tree-themes/)
+- [hallmark pickle ornament](https://allwomenstalk.com/great-hallmark-keepsake-ornaments-for/)
+- [christmas presents ideas for teenage guys](https://allwomenstalk.com/8-best-gift-ideas-for-teenage-boys/)
 - [7 Unique Gift Ideas for Your Boyfriend ...](https://love.allwomenstalk.com/unique-gift-ideas-for-your-boyfriend/)
 - [6 Unique Gift Ideas for Your Partner ...](https://love.allwomenstalk.com/unique-gift-ideas-for-your-partner/)
 

@@ -56,16 +56,16 @@ It can be hard picking out a thoughtful gift, but for a graduate I think it may 
 
 ## Related Posts
 
-- [7 Great Gifts for Recent Grads ...](https://teen.allwomenstalk.com/great-gifts-for-recent-grads/)
-- [creative anniversary gifts for men](https://gifts.allwomenstalk.com/creative-anniversary-gifts-your-guy-will-actually-want/)
-- [7 Wonderful Tips on How to Accept Gifts ...](https://lifestyle.allwomenstalk.com/wonderful-tips-on-how-to-accept-gifts/)
-- [regifting etiquette](https://money.allwomenstalk.com/rules-for-regifting-that-you-might-not-know/)
-- [eco friendly fathers day gifts](https://lifestyle.allwomenstalk.com/eco-friendly-fathers-day-gifts-for-any-dad-in-your-life/)
-- [eco-friendly valentines day gift ideas](https://gifts.allwomenstalk.com/eco-friendly-valentines-day-gifts-your-man-will-love/)
-- [unusual diy gifts](https://diy.allwomenstalk.com/unique-diy-gifts-for-your-loved-ones/)
-- [what to give the man who has everything](https://lifestyle.allwomenstalk.com/great-gifts-for-a-guy-who-has-everything/)
 - [what to get someone who is hard to buy for](https://lifestyle.allwomenstalk.com/gift-ideas-for-someone-who-is-hard-to-buy-for/)
+- [regifting etiquette](https://money.allwomenstalk.com/rules-for-regifting-that-you-might-not-know/)
+- [7 Wonderful Tips on How to Accept Gifts ...](https://lifestyle.allwomenstalk.com/wonderful-tips-on-how-to-accept-gifts/)
+- [what to give the man who has everything](https://lifestyle.allwomenstalk.com/great-gifts-for-a-guy-who-has-everything/)
+- [creative anniversary gifts for men](https://gifts.allwomenstalk.com/creative-anniversary-gifts-your-guy-will-actually-want/)
+- [eco-friendly valentines day gift ideas](https://gifts.allwomenstalk.com/eco-friendly-valentines-day-gifts-your-man-will-love/)
 - [winter bridesmaids gifts](https://wedding.allwomenstalk.com/bridesmaids-gift-ideas-for-under-25/)
+- [unusual diy gifts](https://diy.allwomenstalk.com/unique-diy-gifts-for-your-loved-ones/)
+- [eco friendly fathers day gifts](https://lifestyle.allwomenstalk.com/eco-friendly-fathers-day-gifts-for-any-dad-in-your-life/)
+- [7 Great Gifts for Recent Grads ...](https://teen.allwomenstalk.com/great-gifts-for-recent-grads/)
 - [7 Best Gifts for Teachers ...](https://lifestyle.allwomenstalk.com/best-gifts-for-teachers/)
 - [7 Ways to Thank Your Teacher ...](https://lifestyle.allwomenstalk.com/ways-to-thank-your-teacher/)
 
