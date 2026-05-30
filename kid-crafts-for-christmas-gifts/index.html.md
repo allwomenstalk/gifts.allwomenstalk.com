@@ -3,7 +3,7 @@ title: "8 Christmas Craft Creations: Delightful DIY Gifts for Kids ..."
 description: "DIY Reindeer Clothespin Ornaments; Craft a Pinecone Tree Centerpiece; Festive Christmas Craft Ideas; Create Santa's Candy Sleighs; Easy Popsicle Stick Snowflake Ornaments; More ..."
 url: "https://gifts.allwomenstalk.com/kid-crafts-for-christmas-gifts/"
 category: "gifts"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 8 Christmas Craft Creations: Delightful DIY Gifts for Kids ...
@@ -66,16 +66,16 @@ Source: [buzzfeed.com](http://www.buzzfeed.com/jreeve/diy-ornaments-you-can-make
 
 ## Related Posts
 
-- [Top 10 Crafts for Your Child ...](https://allwomenstalk.com/top-10-crafts-for-your-child/)
 - [8 Great Play-Date Crafts ...](https://allwomenstalk.com/8-great-play-date-crafts/)
-- [Frugal Scrapbooking](https://allwomenstalk.com/frugal-scrapbooking-the-mad-cropper/)
-- [Putting It Together - Florals for Amy ...](https://allwomenstalk.com/putting-it-together-florals-for-amy/)
-- [DIY Invitations...](https://allwomenstalk.com/diy-invitations/)
 - [DIY Weekend- Mike amp Chris Hoodie ...](https://allwomenstalk.com/diy-weekend-mike-chris-hoodie/)
+- [DIY Invitations...](https://allwomenstalk.com/diy-invitations/)
+- [Top 10 Crafts for Your Child ...](https://allwomenstalk.com/top-10-crafts-for-your-child/)
 - [7 Adorable Etsy Finds ...](https://allwomenstalk.com/7-adorable-etsy-finds/)
+- [Frugal Scrapbooking](https://allwomenstalk.com/frugal-scrapbooking-the-mad-cropper/)
+- [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)
 - [5 Great DIY Projects to Bring Spring to Your Home ...](https://allwomenstalk.com/5-great-diy-projects-to-bring-spring-to-your-home/)
 - [8 Great Toys for Your Cat You Can Make ...](https://allwomenstalk.com/8-great-toys-for-your-cat-you-can-make/)
-- [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)
+- [Putting It Together - Florals for Amy ...](https://allwomenstalk.com/putting-it-together-florals-for-amy/)
 - [8 Free Craft Items for Kids ...](https://parenting.allwomenstalk.com/8-free-craft-items-for-kids/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 
