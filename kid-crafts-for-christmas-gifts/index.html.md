@@ -3,7 +3,7 @@ title: "8 Christmas Craft Creations: Delightful DIY Gifts for Kids ..."
 description: "DIY Reindeer Clothespin Ornaments; Craft a Pinecone Tree Centerpiece; Festive Christmas Craft Ideas; Create Santa's Candy Sleighs; Easy Popsicle Stick Snowflake Ornaments; More ..."
 url: "https://gifts.allwomenstalk.com/kid-crafts-for-christmas-gifts/"
 category: "gifts"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # 8 Christmas Craft Creations: Delightful DIY Gifts for Kids ...
@@ -66,16 +66,16 @@ Source: [buzzfeed.com](http://www.buzzfeed.com/jreeve/diy-ornaments-you-can-make
 
 ## Related Posts
 
-- [Putting It Together - Florals for Amy ...](https://allwomenstalk.com/putting-it-together-florals-for-amy/)
-- [Frugal Scrapbooking](https://allwomenstalk.com/frugal-scrapbooking-the-mad-cropper/)
-- [DIY Weekend- Mike & Chris Hoodie ...](https://allwomenstalk.com/diy-weekend-mike-chris-hoodie/)
 - [8 Great Toys for Your Cat You Can Make ...](https://allwomenstalk.com/8-great-toys-for-your-cat-you-can-make/)
 - [8 Great Play-Date Crafts ...](https://allwomenstalk.com/8-great-play-date-crafts/)
-- [DIY Invitations...](https://allwomenstalk.com/diy-invitations/)
-- [5 Great DIY Projects to Bring Spring to Your Home ...](https://allwomenstalk.com/5-great-diy-projects-to-bring-spring-to-your-home/)
-- [7 Adorable Etsy Finds ...](https://allwomenstalk.com/7-adorable-etsy-finds/)
-- [Top 10 Crafts for Your Child ...](https://allwomenstalk.com/top-10-crafts-for-your-child/)
 - [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)
+- [DIY Weekend- Mike & Chris Hoodie ...](https://allwomenstalk.com/diy-weekend-mike-chris-hoodie/)
+- [Top 10 Crafts for Your Child ...](https://allwomenstalk.com/top-10-crafts-for-your-child/)
+- [Frugal Scrapbooking](https://allwomenstalk.com/frugal-scrapbooking-the-mad-cropper/)
+- [5 Great DIY Projects to Bring Spring to Your Home ...](https://allwomenstalk.com/5-great-diy-projects-to-bring-spring-to-your-home/)
+- [DIY Invitations...](https://allwomenstalk.com/diy-invitations/)
+- [7 Adorable Etsy Finds ...](https://allwomenstalk.com/7-adorable-etsy-finds/)
+- [Putting It Together - Florals for Amy ...](https://allwomenstalk.com/putting-it-together-florals-for-amy/)
 - [8 Free Craft Items for Kids ...](https://parenting.allwomenstalk.com/8-free-craft-items-for-kids/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 
